@@ -1,2 +1,2 @@
 # juniormichael
-This is my repository in my year 1 university
+This is my CV me Teufack Brice Junior 
